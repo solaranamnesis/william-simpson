@@ -8,3 +8,10 @@ English - Plain Text
 English - PDF | Coelacanth | Atkinson | Alegreya | Auriocus | Kerkis | Artemisia | Custom01 | Custom02  
 German - Plain Text  
 German - PDF  
+
+## The Trisula Symbol.
+
+English - Plain Text  
+English - PDF | Coelacanth | Atkinson | Alegreya | Auriocus | Kerkis | Artemisia | Custom01 | Custom02  
+German - Plain Text  
+German - PDF  
