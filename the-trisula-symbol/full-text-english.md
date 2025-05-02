@@ -222,13 +222,78 @@ Many other illustrations might be given which would help to support the theory o
 
 1. --- 20. The Sultan's Toorah.
 
+[Plate 2.](https://cdn.solaranamnesis.com/WilliamSimpson/Trisula/journalofroyalas2218roya_orig_0335.png)
 
+2. --- 1. Symbol from Royal Collar, Nimroud.
 
+2. --- 2. Late Fleur-de-Lis.
 
+2. --- 3. Older form of Fleur-de-Lis.
 
+2. --- 4. Hathor with Solar Disc in Horns.
 
+2. --- 5. Head of a Vishnaiva, Benares.
 
+2. --- 6. Isis with Solar Disc in Horns.
 
+2. --- 7. Old form of Fleur-de-Lis.
 
+2. --- 8. Mihrab, Tomb of the Caliphs, Cairo.
 
+2. --- 9. Tingalynam.
 
+[Plate 3.](https://cdn.solaranamnesis.com/WilliamSimpson/Trisula/journalofroyalas2218roya_orig_0337.png)
+
+3. --- 1. Russian Cross with Crescent.
+
+3. --- 2. Abyssinian Crosses.
+
+3. --- 3. Abyssinian Crosses.
+
+3. --- 4. Thibetan Dorjé.
+
+3. --- 5. Trisula as an Ornament, Bharhut.
+
+3. --- 6. Greek Gold Ornaments, Louvre.
+
+3. --- 7. Greek Gold Ornaments, Louvre.
+
+3. --- 8. Coin of Elis, 4th cent. BCE.
+
+3. --- 9. Fleur-de-Lis on the Clasp of Mantle of St. Louis, 1226-1270 CE, Louvre.
+
+[Plate 4.](https://cdn.solaranamnesis.com/WilliamSimpson/Trisula/journalofroyalas2218roya_orig_0339.png)
+
+4. --- 1. Sin or the Moon God, Assyrian.
+
+4. --- 2. Hebrew form of Benidiction.
+
+4. --- 3. Assyrian, Louvre.
+
+4. --- 4. Emblem carried by Babylonian Priest.
+
+4. --- 5. Babylonian Priest.
+
+4. --- 6. Osiris.
+
+4. --- 7. Medieval Satan.
+
+[Plate 5.](https://cdn.solaranamnesis.com/WilliamSimpson/Trisula/journalofroyalas2218roya_orig_0341.png)
+
+5. --- 1. Greek form of Hand in Benidiction.
+
+5. --- 2. The Papal Hand.
+
+5. --- 3. Symbol carried at Jeypoor.
+
+5. --- 4. Hand in Russian Church, before time of Nikon.
+
+5. --- 5. Old Bronze Hand.
+
+5. --- 6. Sceptre of Charlemagne, Louvre.
+
+5. --- 7. Trisulas of Siva.
+
+5. --- 8. Trisulas of Siva.
+
+5. --- 9. Trisulas of Siva.
