@@ -2,6 +2,12 @@
 
 ## By William Simpson, R. I., M. R. A. S.
 
+#### Extract from _The Journal of the Royal Asiatic Society of Great Britain and Ireland_.
+
+### London, 1890.
+
+#### W. H. Allen and Co., 13, Waterloo Place, Pall Mall.
+
 It is only lately that the Trisula, or Trident, has attracted attention as a symbol. It so chances that for many years back I have collected matter connected with this subject, and have often wished to put it in form for publication, but want of time has always stood in the way of realizing this desire. Lately contributions dealing with the Trisula have appeared in the _Journal of the Royal Asiatic Society_ from Mr. Sewell and Mr. Pincott,* and I feel urged to add some additional material to what they have given. I shall not be able to reproduce everything that I have gathered up, but my endeavour will be to give what seems to be important, or may throw light on the subject. As to a theory of origin, I have one: it has long been formed in my mind, and up to the present I see no reason to reject it; or it might be expressed, that no better theory has as yet, so far as I know, been proposed.
 
 *) J. R. A. S. Vol. 18. p. 364, Vol. 19. p. 238. Fergusson, Cunningham, and others have touched upon the trisula in their works. Lately Le Comte Goblet D'Alviella, Professeur d'histoire des Religions à l'Université de Bruxelles, has published a short brochure entitled _Le Trisûla ou Vardhamâna des Bouddhistes_.
