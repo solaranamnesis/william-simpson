@@ -2,7 +2,7 @@
 
 ## By William Simpson, R. I., M. R. A. S.
 
-#### Extract from _The Journal of the Royal Asiatic Society of Great Britain and Ireland_.
+#### Article from _The Journal of the Royal Asiatic Society of Great Britain and Ireland_.
 
 ### London, 1890.
 
