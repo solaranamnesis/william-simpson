@@ -28,7 +28,7 @@ I have another curious coincidence to produce, which is quite as striking as tha
 
 The Hindu, whose head I sketched at Benares, said he was a worshipper of "Seeta-Ram," from which it may be concluded that he was a Vaishnava. The symbol in this case is made with two colours; the external strokes and lower part are white, and the central stroke is red. In 1875 I visited Trichinopoly, and the Brahmins of the great temple of Srirangam told me this symbol is called Trinam or Trinama, and when there was a dot below, as in the sketch given,* it was called Tingalynam, and that when the dot was wanting, it was called Watagalynam. This slight difference indicated a difference of faith which was not explained. All the Brahmins had these marks on their foreheads, and they were also to be seen sculptured and painted on the temples. This shows at least that the symbol occupies a prominent position in the worship of Vishnu. On asking what its signification was, it turned out, after much cross-questioning, to be male and female, or Rama and Sita. The external, or white portion, being Rama, and the Brahmins said it represented his feet, and the central stroke, which is red or saffron, represents Sita. On our way from the temple we met a man and his wife; the man had the two white strokes on his brow, and the wife had the single saffron stroke. A Brahmin, who was the friend of one of our party, explained that this was in such a case the correct form.
 
-It may be as well to notice here that beyond the similarity of form there is no evidence that these symbols have any connection with the trisula. This will also apply to others which I shall have to bring forward. All I can say is that they are very like each other in their general character, and being important symbols, they ought to be placed in a collection of data bearing on the subject. I am inclined myself to accept them as varieties of the one symbol, but it is impossible to speak with certainty about them. I may mention that the very different explanations which are given of each cannot form an objection to their identity. The symbol is evidently very ancient, and its signification, as is the case in all symbols, would naturally be liable to changes which will suggest themselves to any one who considers the subject.
+It may be as well to notice here that beyond the similarity of form there is no evidence that these symbols have any connection with the trisula. This will also apply to others which I shall have to bring forward. All I can say is that they are very like each other in their general character, and being important symbols, they ought to be placed in a collection of data bearing on the subject. I am inclined myself to accept them as varieties of the one symbol, but it is impossible to speak with certainty about them. I may mention that the very different explanations which are given of each cannot form an objection to their identity. The symbol is evidently very ancient, and its signification, as is the case in all symbols, would naturally be liable to changes which will suggest themselves to anyone who considers the subject.
 
 *) Pl. 2. Fig. 9.
 
@@ -108,7 +108,7 @@ It is not uncommon for sceptres of the west to be surmounted by a fleur-de-lis. 
 
 I give what I understand to be a crown from one of the Assyrian figures in the Louvre.* Bononi gives a drawing of a similar crown in _Nineveh and its Palaces_,* and in that work is a representation of Dagon* with the same crown. Each of these crowns is surmounted with an ornament which is described as "a fleur-de-lis," but it might be called a trisula. The same symbol appears in the British crown as a fleur-de-lis. It would be rash in the present state of our knowledge to affirm that these are all the same symbol, and that they are connected with the trisula; all that can be said is, that if the fleur-de-lis came from the East, it is just possible that it is a continuation of the important symbol we have here under consideration. It has been shown in this paper that the trisula was a divine sceptre in the hands of gods, and we may presume that it was an emblem of their supreme power; it has also been shown that priests have used the same symbol in worship; and we may here again suppose that it represented the divine attribute. In most religions priests claimed to be the Vicars of the Deity, and the Divine Right of Kings was based upon the same assumption. Having these pretensions, priests and kings would naturally use the recognized symbol as the diploma of their authority, and as evidence of the power they wielded. If the symbol was right and fitting for a sceptre, it would be right and fitting to adorn a crown.
 
-In India the trisula became an ornament, and as a jewel was worn at an early period. On the Stupa of Bharhut there is a belt of ornament, in which the jewelry of the time is introduced as a prominent feature; there are bracelets, necklaces, bangles, etc., and among these ornaments the trisula is repeatedly given.* They are represented in pairs, but one is figured as an earring.* Although worn as personal ornaments, we may suppose that they were most likely looked upon as charms, because almost all important symbols had this character ascribed to them. In the West the fleur-de-lis has long fluctuated between symbolism and ornament; and, as in many other cases, it is often difficult to say which character should be ascribed to it. In the royal crown it seems to be only a badge or mark of distinction. In the Louvre I one day noticed among the old jewelry, which was common at an early date to both Greeks and Romans, a number of objects in which the trisula form is very marked. I give illustrations of a couple of these,* but of course I can say nothing about the intentions of the artists who fabricated these ornaments. I have designed ornaments myself, and I am aware of the tendency there is in art of this kind to produce forms similar to the fleur-de-lis or the trisula. In architecture, particularly in Gothic, terminal ornaments are very apt to assume this character. De Beaumont's book on the fleur-de-lis, which has been already referred to, is full of these forms, most of them being, I think, only ornaments, and it rather detracts from the character of the work as an authority to find these figuring as a fleur-de-lis.
+In India the trisula became an ornament, and as a jewel was worn at an early period. On the Stupa of Bharhut there is a belt of ornament, in which the jewellery of the time is introduced as a prominent feature; there are bracelets, necklaces, bangles, etc., and among these ornaments the trisula is repeatedly given.* They are represented in pairs, but one is figured as an earring.* Although worn as personal ornaments, we may suppose that they were most likely looked upon as charms, because almost all important symbols had this character ascribed to them. In the West the fleur-de-lis has long fluctuated between symbolism and ornament; and, as in many other cases, it is often difficult to say which character should be ascribed to it. In the royal crown it seems to be only a badge or mark of distinction. In the Louvre I one day noticed among the old jewellery, which was common at an early date to both Greeks and Romans, a number of objects in which the trisula form is very marked. I give illustrations of a couple of these,* but of course I can say nothing about the intentions of the artists who fabricated these ornaments. I have designed ornaments myself, and I am aware of the tendency there is in art of this kind to produce forms similar to the fleur-de-lis or the trisula. In architecture, particularly in Gothic, terminal ornaments are very apt to assume this character. De Beaumont's book on the fleur-de-lis, which has been already referred to, is full of these forms, most of them being, I think, only ornaments, and it rather detracts from the character of the work as an authority to find these figuring as a fleur-de-lis.
 
 *) Pl. 4. Fig. 3.
 
@@ -128,7 +128,7 @@ As to its origin, I incline to the theory that the trisula or trident grew out o
 
 The development of the two symbols into the particular form of the trisula was a process which presents but little difficulty. The lunar symbol was the crescent. The full moon is a very beautiful object in the sky, but the crescent form was that which distinguished it from the round disc of the solar orb, and for this reason we may suppose it was adopted. Now the crescent is almost a universal symbol: it is found connected with nearly all the old mythologies. A collection of illustrations would be the best method of showing this symbol and its relation to the ancient systems, but that is out of the question here. It was the symbol of a large number of the principal female divinities. The great Diana of the Ephesians was not the moon, she was, as her statues show, the great mother --- the prolific Mother Earth; and the crescent was the symbol of this. All things were said to have been produced by Mother Night, or out of darkness; this was only another form of the symbolism, and it may suggest one reason why the lunar orb became connected with the power. According to this theory the central portion of the trident is supposed to have resulted from placing the solar emblem within the crescent, either as the sun itself, or as a symbol of the sun; and it thus became equivalent to the old Androgynous notion of the deity, of which traces are to be found in India, Egypt, Greece, and other parts of the world.*
 
-*) The Androgynous form of the deity was simply a personification of the creative power. As Ardhanari [Ardhanārīśvara] in India, it was the combined figures of Siva and Parvati. Hermaphroditus was, as the name implies, Hermes and Aphrodite. Dionysus was also represented with the twofold nature. In Egypt the Nile was represented by a figure which is distinctly male and female. Genesis 1. 27 may also be referred to. The legend of the Amazons has long been a subject of speculation; my suggestion is that they had an Androgynous type for their deity, and this, from some cause or another, came to be associated with the people of the race, and the one was contused with the other. The Ardhanari of India is perhaps a survival of the Amazonian deity, for it wants the right breast, because that side represents Siva; the left is Parvati, and has the female form of the breast.
+*) The Androgynous form of the deity was simply a personification of the creative power. As Ardhanari [Ardhanārīśvara] in India, it was the combined figures of Siva and Parvati. Hermaphroditus was, as the name implies, Hermes and Aphrodite. Dionysus was also represented with the twofold nature. In Egypt the Nile was represented by a figure which is distinctly male and female. Genesis 1. 27 may also be referred to. The legend of the Amazons has long been a subject of speculation; my suggestion is that they had an Androgynous type for their deity, and this, from some cause or another, came to be associated with the people of the race, and the one was confused with the other. The Ardhanari of India is perhaps a survival of the Amazonian deity, for it wants the right breast, because that side represents Siva; the left is Parvati, and has the female form of the breast.
 
 I shall now give some illustrations of the combination of the crescent with the sun, or the male power. The first is a rough copy of Osiris from the Serapeum at Sakkarah.* The head of the figure is here surmounted by the crescent, in which is the sun.* The next is a head of Isis, in which the horns of the cow seem to represent the crescent; it is from the tomb of Psammetichus at Sakkarah.* Another is the figure of Hathor,* who in her attributes was closely allied to Isis; here again we have the horns inclosing the solar disc; this also was found at Sakkarah, and the originals of these are in the Museum of Bulak. The small amulets which represent the sun in Amenti become another illustration.* In most of these the sun is in a crescent, but in some the crescent is represented as a triangular space. These small objects, worn as charms, had a reference to the passage of the soul; each soul became Osiris, and the supposed movement of the sun in the under-world was the type. In this case it might be inferred that in these simple forms we have a symbolization of the creative power by which the individual is reborn into blessedness in the next world. That this was the meaning is, I think, fully established by the following quotation from _The Book of Respirations_:
 
@@ -160,13 +160,13 @@ The ancient Egyptians believed in the resurrection of the body, which is indicat
 
 From the same authority I give a representation of Sin, the moon god of the Assyrians, in which we have a possible development towards the trisula form. In this the god is male, but it agrees with the other illustrations by showing the male within the female emblem.*
 
-We are all familiar with the well-known legend of "The Man in the Moon," who was placed there as a punishment for gathering sticks on Sunday. After what has been said about the male power in the crescent, it will strike any one that this is either a very curious coincidence, or it is a survival of the old idea which has come down to the present day. I give an illustration of this, said to be in a church at Conway.* Here again we have a development which produces a form similar to that of the trisula.
+We are all familiar with the well-known legend of "The Man in the Moon," who was placed there as a punishment for gathering sticks on Sunday. After what has been said about the male power in the crescent, it will strike anyone that this is either a very curious coincidence, or it is a survival of the old idea which has come down to the present day. I give an illustration of this, said to be in a church at Conway.* Here again we have a development which produces a form similar to that of the trisula.
 
 Reference may be here made again to the golden hand of the sun in the crescent, which has been already referred to. In this we have a form closely approximating to the trisula, and evidently from a development such as the theory of this paper suggests. The lingyoni of the Saiva worship might be brought forward as another illustration. In this case the female power is not represented by a crescent; but if that symbol took the place of the yoni, a perfect trisula would be the result.*
 
 The Turks have adopted the crescent, embracing the sun or a star, and often in the form of a pentalpha; the crescent in this case is supposed to have been derived from the old Byzantine symbolism; and traces of this symbolism are still to be found in the Eastern Church. The Russian Church, which owes its origin to Byzantium, places a crescent under the cross,* an arrangement which is much older than what is called the "triumph of the cross over the crescent," that being the usual explanation. The Abyssinian Church also places a curved form under their large processional crosses, which looks as if it were derived from the crescent.*
 
-*) Pl. 4. Fig. 1. I am aware that in some cases the moon was called male. This would he an important point to deal with, but its full consideration would be rather complicated to go into here. It is sufficient for my purpose that the moon was generally considered to be feminine. My own impression is that the two powers were so intimately connected as symbols, that the name of the one became the name of the other, or of both. We have many instances of this in language; the use of the word "throne," when we mean the "monarch" who sits in it, is a good illustrative example.
+*) Pl. 4. Fig. 1. I am aware that in some cases the moon was called male. This would be an important point to deal with, but its full consideration would be rather complicated to go into here. It is sufficient for my purpose that the moon was generally considered to be feminine. My own impression is that the two powers were so intimately connected as symbols, that the name of the one became the name of the other, or of both. We have many instances of this in language; the use of the word "throne," when we mean the "monarch" who sits in it, is a good illustrative example.
 
 *) Pl. 1. Fig. 14.
 
@@ -230,9 +230,9 @@ Many other illustrations might be given which would help to support the theory o
 
 2\. --- 1. Symbol from Royal Collar, Nimroud.
 
-2\. --- 2. Late Fleur-de-Lis.
+2\. --- 2. Late Fleur-de-lis.
 
-2\. --- 3. Older form of Fleur-de-Lis.
+2\. --- 3. Older form of Fleur-de-lis.
 
 2\. --- 4. Hathor with Solar Disc in Horns.
 
@@ -240,7 +240,7 @@ Many other illustrations might be given which would help to support the theory o
 
 2\. --- 6. Isis with Solar Disc in Horns.
 
-2\. --- 7. Old form of Fleur-de-Lis.
+2\. --- 7. Old form of Fleur-de-lis.
 
 2\. --- 8. Mihrab, Tomb of the Caliphs, Cairo.
 
@@ -256,7 +256,7 @@ Many other illustrations might be given which would help to support the theory o
 
 3\. --- 3. Abyssinian Crosses.
 
-3\. --- 4. Thibetan Dorjé.
+3\. --- 4. Tibetan Dorjé.
 
 3\. --- 5. Trisula as an Ornament, Bharhut.
 
@@ -266,7 +266,7 @@ Many other illustrations might be given which would help to support the theory o
 
 3\. --- 8. Coin of Elis, 4th cent. BCE.
 
-3\. --- 9. Fleur-de-Lis on the Clasp of Mantle of St. Louis, 1226-1270 CE, Louvre.
+3\. --- 9. Fleur-de-lis on the Clasp of Mantle of St. Louis, 1226-1270 CE, Louvre.
 
 ## Plate 4.
 
@@ -274,7 +274,7 @@ Many other illustrations might be given which would help to support the theory o
 
 4\. --- 1. Sin or the Moon God, Assyrian.
 
-4\. --- 2. Hebrew form of Benidiction.
+4\. --- 2. Hebrew form of Benediction.
 
 4\. --- 3. Assyrian, Louvre.
 
@@ -290,7 +290,7 @@ Many other illustrations might be given which would help to support the theory o
 
 [Plate 5.](https://cdn.solaranamnesis.com/WilliamSimpson/Trisula/journalofroyalas2218roya_orig_0341.png)
 
-5\. --- 1. Greek form of Hand in Benidiction.
+5\. --- 1. Greek form of Hand in Benediction.
 
 5\. --- 2. The Papal Hand.
 
