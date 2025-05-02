@@ -179,3 +179,56 @@ Many other illustrations might be given which would help to support the theory o
 *) See Pl. 3. Fig. 1.
 
 *) See Pl. 3. Figs. 2, 3.
+
+# Plates.
+
+[Plate 1.](https://cdn.solaranamnesis.com/WilliamSimpson/Trisula/journalofroyalas2218roya_orig_0333.png)
+
+1. --- 1. Forms of the Hebrew S, or _Shin_.
+
+1. --- 2. Forms of the Hebrew S, or _Shin_.
+
+1. --- 3. Samaritan Shin.
+
+1. --- 4. Phœnician Forms.
+
+1. --- 5. Phœnician Forms.
+
+1. --- 6. Phœnician Forms.
+
+1. --- 7. Greek.
+
+1. --- 8. Ancient Hebrew Shins.
+
+1. --- 9. Ancient Hebrew Shins.
+
+1. --- 10. _Saut_, The Royal S of the Abyssinian Alphabet.
+
+1. --- 11. SH in Egyptian Hieroglyphics.
+
+1. --- 13. The Phylactery of the Jews.
+
+1. --- 14. The "Man in the Moon."
+
+1. --- 15. The Sun in Amenti.
+
+1. --- 16. The Sun in Amenti.
+
+1. --- 17. Sun God Shamas, Assyrian.
+
+1. --- 18. Sun God Shamas, Assyrian.
+
+1. --- 19. The Εὶ of Delphi.
+
+1. --- 20. The Sultan's Toorah.
+
+
+
+
+
+
+
+
+
+
+
