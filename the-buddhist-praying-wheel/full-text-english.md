@@ -22,11 +22,11 @@ Pope, _Essay on Man_.
 
 ---
 
-# [Introductory.]()
+# [Introductory.](#introductory-1)
 
-# [Chapter 1. --- Among the Lamas.]()
+# [Chapter 1. --- Among the Lamas.](#chapter-1-----among-the-lamas-1)
 
-# [Chapter 2. --- The Precious Wheel.]()
+# [Chapter 2. --- The Precious Wheel.](#chapter-2-----the-precious-wheel-1)
 
 ...
 
