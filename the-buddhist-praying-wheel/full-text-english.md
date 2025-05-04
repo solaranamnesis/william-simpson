@@ -278,12 +278,6 @@ It has been already stated that in Indian Buddhism the wheel was not what might 
 
 [Fig. 8. --- Wheel on Pillar. Sculpture at Sânchi. From Cunningham's _Bhilsa Topes_.]()
 
-[Fig. 9. --- Worshipping a Wheel. Sculpture at Sânchi. From a Sketch by the Author.]()
-
-[Fig. 10. --- Throne and Wheel. From Amarávati Sculptures.]()
-
-[Fig. 11. --- Foot of Buddha, with Wheel and other Symbols. From Amarávati.]()
-
 *) "_Kinnaras_" are a kind of celestial beings, "Divine Musicians"; they are variously represented. On the Sânchi Stûpa they have human heads and arms, with what may be intended for the tail and legs of a peacock.
 
 *) _Trisūla_: this is a form of the trident, a symbol common to both Buddhism and Brahmanism. See _supra_, what has already been stated  regarding the Tibetan "Dorjé."
@@ -291,6 +285,12 @@ It has been already stated that in Indian Buddhism the wheel was not what might 
 *) A large and careful illustration of one of these is given in Alabaster's _Wheel of the Law_, p. 286. The author gives a long explanation of it, which will show how important the foot and its symbols were to the Buddhists. One may be seen in the British Museum.
 
 It is often a difficult task to explain old symbols that have come down to us from the past. In many cases we have the symbol, but no descriptive authority for the particular meaning that was attached to it. We know that symbols have had new meanings given to them, and at times the sense in which they were understood has been almost completely changed; this has to be remembered, because although we may know the symbolical interpretation that belonged to one system, or to some particular date, it may not be the same that is accepted when the symbol has been adopted by another system, or at another period of time. The study of symbolism is on this account surrounded with difficulties.
+
+[Fig. 9. --- Worshipping a Wheel. Sculpture at Sânchi. From a Sketch by the Author.]()
+
+[Fig. 10. --- Throne and Wheel. From Amarávati Sculptures.]()
+
+[Fig. 11. --- Foot of Buddha, with Wheel and other Symbols. From Amarávati.]()
 
 In the case of the wheel symbol we have statements regarding it from both Buddhist and Brahmanical authorities; and still its exact meaning in these systems is not quite clear. In this I am not speaking of the origin of the wheel and of circular movements in religion and customs, nor of their relation to other systems. In India when any great man conquered or achieved at any time supreme power over the greater part of that country, he received the title of a "Chakravarti." Asoka and Chandragupta, for instance, had this title, and our Queen is, in India, undoubtedly a "Mahâ Chakravarti." Dowson's Dictionary defines this word: "A universal emperor, described by the _Vishnu Purāna_ as one who is born with the mark of Vishnu's discus visible in his hand"; but Wilson observes, "The grammatical etymology is, 'He who abides in or rules over an extensive territory called a Chakra." Chakra is a wheel, but it is also a circle, and Wilson's definition would bring the whole sense down to that of a king who ruled over a country with an extended boundary. The _Vishnu Purāna_ makes the wheel, as in the case of Buddha, to be a quoit, and that the impression of it would be on the hand instead of the foot. The discus is a chakra, so that the identity in this case is clear enough. Buddha was considered to be in a spiritual sense a Mahâ Chakravarti; and at his birth, as described above, he walked seven steps towards each of the quarters --- this has been so told as to justify the title, for it implied the occupation of the four quarters, and that meant the whole world, which, perhaps, in their minds may have only included Jambudwipa, or India. When the Rajasuya, or coronation, of Yudhi-shtira, as a Chakravarti Rajah, took place at Indra-prastha --- the modern Delhi --- supposed to be about 4000 years ago, four grand military expeditions were sent out to the four cardinal points; each expedition was commanded by one of the other four Pandu Brothers. These armies having conquered and brought back the allegiance and tribute from the four quarters, then the coronation of the elder Brother took place, when he became a supreme Wheel Monarch. In the coronation ceremony, at one part of it, "the king was then made symbolically to conquer the four quarters of the earth and the sky. Making him advance successively towards the east, north, south, and west," was supposed to have accomplished this.* The sky was afterwards conquered by merely looking upwards.*
 
