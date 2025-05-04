@@ -28,7 +28,7 @@ Pope, _Essay on Man_.
 
 # [Chapter 2. --- The Precious Wheel.](#chapter-2-----the-precious-wheel-1)
 
-# [Chapter 3. --- The Wheel in Indian Buddhism.]()
+# [Chapter 3. --- The Wheel in Indian Buddhism.](#chapter-3-----the-wheel-in-indian-buddhism-1)
 
 ...
 
