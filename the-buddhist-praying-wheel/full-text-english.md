@@ -30,7 +30,7 @@ Pope, _Essay on Man_.
 
 # [Chapter 3. --- The Wheel in Indian Buddhism.](#chapter-3-----the-wheel-in-indian-buddhism-1)
 
-# [Chapter 4. --- The Wheel in the Brahmanic System.]()
+# [Chapter 4. --- The Wheel in the Brahmanic System.](#chapter-4-----the-wheel-in-the-brahmanic-system-1)
 
 ...
 
