@@ -34,7 +34,7 @@ Pope, _Essay on Man_.
 
 # [Chapter 5. --- The Solar Origin.](#chapter-5-----the-solar-origin-1)
 
-# [Chapter 6. --- The Swastika.]()
+# [Chapter 6. --- The Swastika.](#chapter-6-----the-swastika-1)
 
 ...
 
