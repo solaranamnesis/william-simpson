@@ -42,7 +42,7 @@ Pope, _Essay on Man_.
 
 # [Chapter 9. --- In Egypt.](#chapter-9-----in-egypt-1)
 
-# [Chapter 10. Among the Semites --- Mohammedan.](#chapter-10-----among-the-semites-----mohammedan-1)
+# [Chapter 10. --- Among the Semites --- Mohammedan.](#chapter-10-----among-the-semites-----mohammedan-1)
 
 # [Chapter 11. --- Among the Semites --- Jewish.](#chapter-11-----among-the-semites-----jewish-1)
 
