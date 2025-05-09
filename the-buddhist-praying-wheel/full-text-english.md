@@ -36,6 +36,18 @@ Pope, _Essay on Man_.
 
 # [Chapter 6. --- The Swastika.](#chapter-6-----the-swastika-1)
 
+# [Chapter 7. --- The Zoroastrian System.]()
+
+# [Chapter 8. --- Japan.]()
+
+# [Chapter 9. --- In Egypt.]()
+
+# [Chapter 10. Among the Semites --- Mohammedan.]()
+
+# [Chapter 11. --- Among the Semites --- Jewish.]()
+
+# [Chapter 12. --- The Greek System.]()
+
 ...
 
 ---
