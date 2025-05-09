@@ -42,7 +42,7 @@ Pope, _Essay on Man_.
 
 # [Chapter 9. --- In Egypt.](#chapter-9-----in-egypt-1)
 
-# [Chapter 10. Among the Semites --- Mohammedan.](#chapter-10-among-the-semites-----mohammedan-1)
+# [Chapter 10. Among the Semites --- Mohammedan.](#chapter-10-----among-the-semites-----mohammedan-1)
 
 # [Chapter 11. --- Among the Semites --- Jewish.](#chapter-11-----among-the-semites-----jewish-1)
 
@@ -769,7 +769,7 @@ Plutarch also mentions that "they lead the Sacred Cow seven times about her Temp
 
 *) _Isis and Osiris._
 
-# Chapter 10. Among the Semites --- Mohammedan.
+# Chapter 10. --- Among the Semites --- Mohammedan.
 
 Some systems, as already explained, appear to have had none, or but a very limited development of the solar symbolism which had taken the form of circular movements. This cannot be said to be the case amongst the Semites, and particularly among the Mohammedans, who perform the _Tawaf_, or circumambulation of the Ka'abah at Mekkah, as one of the most sacred of their rites. The old Sabaean sun and star worship of the early people of Arabia might be supposed to account for this; but I cannot say that I find this to be a satisfactory explanation. The Egyptians, as we have seen, had Rā, the sun, as their chief god, and the legend of Osiris was based on the solar movement; and yet, so far as we have seen, circular movements in ritual were not prominent in ancient Egypt. The same in the Zoroastrian system, where Mithras was "the god of the heavenly light,"* and the modern Parsis still look to the sun in their daily service, and yet it appears they have not adopted the rotatory rites which are so promiment in other systems. We must suppose that in these where they do not exist, other rites predominated to the exclusion of the circular practices; or, that if they did have a place, they may have, owing to local causes, been dropped out. To these remarks, it must not be overlooked that I do not claim that my knowledge on the subject is in any way complete; I am only giving in these pages the material I have come upon during my travels, or what has chanced to turn up in reading, which has been anything but systematic. This subject is too important in connection with comparative mythology, as well as folklore, to remain dormant. Others will follow in the study of it, and they may be able to fill up many blanks that I have left. There is another aspect of the subject on which more accurate information is required, and I find myself fettered in the present section owing to the imperfect statements of the writers I have to refer to, many of whom describe circular movements, but omit to tell in what direction they are made, and some who do attempt it cause considerable doubt as to what is meant by the indefinite use of the words "right" and "left," so that I find myself unable to carry out the comparison between them and those movements already described, as well as those that have yet to be dealt with.
 
