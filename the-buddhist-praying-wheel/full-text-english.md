@@ -1352,4 +1352,35 @@ Burning wheels, discs, torches, and barrels, appear to have been employed in the
 
 *) _From the Hebrides to the Himalayas_, vol. 1. pp. 245, 246.
 
+The references to these circular movements are far from being exhausted, but enough has been produced to give some idea of their character, as well as the frequency with which the customs were practised over the whole extent of the British Isles. The most of the instances that have been recorded, such as the above at Burghead, it ought to be remembered, are only those that have survived to a late date, so that the details have been carefully described. For the last century or so these customs with fire and circular movements have been slowly becoming extinct, and in the present day scarcely a vestige of them can be said to exist. But in the past there is every reason to suppose that there was scarcely a town or village in which they did not take place.
+
+Professor Rhys in his _Hibbert Lectures_,* refers to a strange "mythical creation known as _Roth Fáil_, or Fál's Wheel, and _Roth Rámach_, or the Wheel with Paddles." He says: "The prophecies about the Wheel appear to have consisted partly of an ancient Irish belief in a mythic wheel and a mythic ship, and partly of Christian tales about Simon Magus, such as the one about his flying in the air, or ascending like Elijah in a fiery chariot." To this is added, "The name _Roth Fáil_, which may be rendered the Wheel of Light, and regarded as probably referring in the first instance to the disk of the sun."* Again the professor says: "We have another proof of the existence in ancient Ireland of a wheel myth in the name _Mog Ruith_ of the Druid involved in the stories occupying our attention at present. It meant _Servus Rotae_, or the Slave of the Wheel, and most probably of no other wheel than the one here in question, the _Roth Fáil_, or Wheel of Light."* As the learned lecturer is uncertain about the real meaning attached to this wheel, no definite conclusion can be come to regarding it. Still it may be pointed out that the intimate connection of the wheel symbolism with so many Celtic customs, which are now traced back to a remote antiquity, goes far to confirm the suggestion that the Roth Fáil belongs to the subject treated upon in these pages. As a matter requiring further knowledge and investigation, the reference to it is placed here in this collection of material.
+
+With only the same purpose in view I refer to 
+Professor Rhys's _Arthurian Legend_,* where he men- 
+tions an equally strange myth of a "revolving castle," 
+
+*) Pp. 210-215.
+
+*) _Ibid._ p. 214.
+
+*) _Ibid._ p. 215.
+
+*) Pp. 116, 302, 303, 325, 392.
+
+
+or a "turning castle." It is just possible that this revolving structure may be the celestial world typified as a building or fortress, to which the apparent motion of the heavenly spectacle had been added. If this should eventually be accepted as the explanation, then this curious myth would be related to our subject.
+
+Having shown what the wheel-like or turning customs have been in the British Isles, it will now be necessary to show that similar celebrations were equally common on the Continent. M. Gaidoz points out that Spain and Italy have furnished no examples, but it is quite possible that as yet they have not been noticed in these countries. When sought for they may be found. In France and Germany they are plentiful enough.
+
+Grimm, in his _Teutonic Mythology_, has given considerable attention to this subject, and we have the high authority of his name in favour of the solar symbolism of the wheel. I shall here reproduce his tracing of the words for sun and wheel through the northern forms of speech. "That the sun was likened to a _wheel of fire_, and the element blazing out of him was represented in the shape of a wheel, has been fully shown, p. 620. Tit. 2983 speaks of the _sun's wheel_. The _Edda_ expressly calls the sun _fagrahvel_, fair wheel, Sæm. 50a, Sn. 177.223. The Norse rune for S is named _sôl_ sun, the AS. and OHG. _sigil, sugil_, for which I have proposed [_Andr._ p. 96] the readings _segil, sagil, sahil_, and may now bring in support the Gothic _sáuil_, and Gr. ἥλιος. But the Gothic letter ☉ [= HV] is the very symbol of the sun, and plainly shows the shape of a wheel; we must therefore suppose it to have been the initial of a Goth. _hvil_ = AS. _hweol_, ON. _hvël._ From 'hvel' was developed the Icel. _hiol_, Swed. Dan. _hjul_, O. Swed. _hiughl_; and from 'hweol, hweohl' the Engl. _wheel_, Nethl. _wiel_, and Fris._fial_ [Richth, 737]. In view of all these variations, some have even ventured to bring in the ON. _jol_, Swed. Dan. _jul_ [Yule], the name of the winter solstice, and fasten upon it also the meaning of wheel; on that hypothesis the two forms must have parted company very early, supposing the Gothic name of November, _jiuleis_, to be cognate. The word _wheel_ seems to be of the same root as _while_, Goth, _hveila_, OHG. _huîla_, i. e. revolving time; comf. Goth, hveila-hvaírbs, OHG. huîl-huerbîc, volubilis."*
+
+Here is another quotation, in which the solar origin is again affirmed, and an interesting celebration is described where a wheel occupies a prominent position: "The wonderful amount of harmony in these accounts, and the usages of need-fire themselves, point back to a high antiquity. The _wheel_ seems to be an emblem of the sun, whence light and fire proceed; I think it likely that it was provided with nine spokes: 'thet niugenspetze fial' survives in the Frisian laws, those nine oaken spindles, whose friction against the nave produced fire, signify the nine spokes standing out of the nave, and the same sacred number turns up again in the nine kinds of wood, in the nine and eighty-one men that rub. We can hardly doubt that the wheel when set on fire formed the nucleus and centre of a holy and purifying sacrificial flame. Our _Weisthümer_ (2. 615, 616, 693-697) have another remarkable custom to tell of. At the great yearly assize, a _cart-wheel_, that had lain six weeks and three days soaking in water [or a cesspool], was placed in a fire kindled before the judges, and the banquet lasts till the _nave_, which must on no account be turned or poked, be consumed to ashes. This I take to be a last relic of the pagan sacrificial feast, and the wheel to have been the means of generating the fire, of which it is true there is nothing said. In any case we have here the use of a cart-wheel to feed a festal flame."*
+
+*) Grimm's _Teutonic Mythology_, vol. 2. pp. 701, 702.
+
+*) _Teutonic Mythology_, vol. 2. pp. 611, 612.
+
+This particular instance might correctly enough have been called "The Wheel of the Law," but not quite in the same sense as the Dharmachakra of Buddhism. The same author also supplies an account of the following custom:---
+
 ...
