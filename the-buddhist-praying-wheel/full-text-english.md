@@ -58,7 +58,7 @@ Pope, _Essay on Man_.
 
 # [Chapter 17. --- The God of the Wheel.](#chapter-17-----the-god-of-the-wheel-1)
 
-# [Chapter 18. --- The Wheel and Thunder.]()
+# [Chapter 18. --- The Wheel and Thunder.](#chapter-18-----the-wheel-and-thunder-1)
 
 ...
 
