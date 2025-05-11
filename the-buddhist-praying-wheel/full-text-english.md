@@ -60,6 +60,8 @@ Pope, _Essay on Man_.
 
 # [Chapter 18. --- The Wheel and Thunder.](#chapter-18-----the-wheel-and-thunder-1)
 
+# [Chapter 19. --- Summary.]()
+
 ...
 
 ---
@@ -1606,5 +1608,57 @@ These form the principal data on this particular branch of the subject. M. Gaido
 *) _Le Dieu Gaulois du Soleil_, p. 98.
 
 # Chapter 18. --- The Wheel and Thunder.
+
+The combination of the wheel with thunder appears at first strange and improbable, but it is no assumption. The evidence for this is full and distinct enough. Mention has already been made of the discus of Vishnu, which has been identified with the chakra or wheel, and was also looked upon as a vajra or thunderbolt, as well as a weapon of war.* This chakra was formed by Viswa Karma, by placing the sun on his lathe and cutting away an eighth part of it. Viswa Karma is also reputed to have made the trisūla or trident of Siva, which is likewise considered to be a vajra or thunderbolt.* This is the same as the Tibetan Dorjé, which I have seen the Lamas hold in one hand while they whirled their praying-wheel with the other. The cart-wheel that the Brahman mounted and, while it turned, sang a hymn from the _Sâma Veda_, was "compared with the vajra, or disk-shaped thunderbolt." Some of the wheels represented in Buddhist sculptures are surrounded on their outer edges by trisūlas as vajras; others may be seen on the wheels of the Sánchi sculptures.* One wheel on the Amarávati sculptures shows the trisūla still more distinctly.* I have given an illustration of a Japanese wheel surrounded by drums, which produce the thunder. The central portion of the wheel supposed to represent the chrysanthemum (see Fig. 22). The Japanese may have derived this idea from a Chinese god, whom Edkins calls "the Father of Thunder." In the narrative of Lord Macartney's embassy to China, which was written by Sir George Staunton, there is an illustration of this deification, described as "The Jupiter of the Chinese" (see Fig. 41). The figure is half man, half eagle, like the _Garuda_ of Vishnu. The wheel has drums upon it, very like the Japanese thunder-wheel; the god produces the noise by beating on them with a truncheon or sceptre; and the object in the left hand is described by Staunton as a "thunderbolt."
+
+[Fig. 41. --- Lui-Shin, the Chinese God of Thunder.]()
+
+*) I made some sketches, in 1860, of Sikh Akalis at Amritser, with steel chakras on their puggeries, which were supposed to be weapons for use in war. I say "supposed," for I doubt if they were ever employed for that purpose by those who wore them.
+
+*) Here we have a curious identity with the Greek mythology. Viswa Karma is the architect, or artificer of the gods in the Brahmanical system; and he formed the weapons of the gods, including the thunderbolts, exactly the same work which is ascribed to Hephaestus.
+
+*) _Tree and Serpent Worship_, pl. 42. figs. 1, 2; pl. 43. fig. 4.
+
+*) _Ibid._ pl. 98.
+
+The small figure found at Châtelet, with a wheel in the left hand and a thunderbolt in the right (Fig. 37), has been already mentioned. There is also the bronze statuette found at Vienne, on the Rhone, near Lyons, with what is supposed to be a thunder-wheel over his head; how the hammers in this arrangement are moved so as to beat upon the drum it would be hard to explain. The same difficulty presents itself in the case of the Japanese thunder-drum, which bears a certain resemblance to this example. As there must be some uncertainty about the exact meaning of this piece of machinery, it must be left for each to form his own opinion upon it. For myself, I have little doubt but it represents some kind of thunder-wheel.
+
+M. Gaidoz devotes a section of his work to "Les Autels à la Roue," in which old altars have been found with wheels upon them, and in addition to the wheel many have thunderbolts. He says: "M. de Villefosse en a dressé la liste; il en a constaté quatre dans le département du Gard, un dans la Mayenne, et trois dans le nord de l'Angleterre propre (région des Grandes Murailles). Sur trois de ces autels anglais, deux ont été élevés par des cohortes de Tongres, c'est-à-dire qu'il s'agit peut-être là d'un culte importé. Sur plusieurs de ces autels, la roue est répétée, comme pour accentuer l'hommage au dieu, et on la trouve par deux, par trois et par six; on y trouve aussi plusieurs fois un foudre, concurremment avec la roue."* Other altars are mentioned, and among them, "...un autel avec inscription à Jupiter et portant la roue entre deux foudres."* In the Appendix an illustration is given of an altar discovered at Clarensac, Canton de Saint-Mamert, Department of the Gard, and now in the museum of the Maison-Carrée at Nismes. On this altar there is a wheel with eight spokes, and below it in a sunk panel is an object which I take to be a rude representation of a thunderbolt (Fig. 42).
+
+In Dr. Bruce's _Handbook of the Roman Wall_, that author describes two stones found at Sandysike farmhouse, which he considers to have been altars. "One bears a thunderbolt, the other a wheel."* Illustrations of these are given in the _Handbook_.
+
+Another possible combination of the wheel and thunderbolt occurs among the symbols on old rude stones found in Scotland. One of these is known as the double disc or spectacles, and is usually combined with another symbol called a sceptre. This last is shaped like the letter Z, and terminates in one or more forms which bear a resemblance to tridents. The double discs are generally plain circles (Fig. 43), but in a few cases they are filled in with ornaments; and in Stuart's _Sculptured Stones of Scotland_ there is one example, found at Aberlemno, near Forfar, in which the discs are represented as wheels* (Fig. 44). This is very suggestive, and if it could be shown that these circular forms were intended for wheels, it would go far to support what M. Gaidoz contends for as the original intention of discs, that they were wheel symbols. Colonel Forbes Leslie, who writes, it may be presumed, unconscious of these ideas, says, in reference to this example: "It may be remarked regarding this particular emblem that in later sculptures, evidently after the introduction of Christianity, the double disc is made in the form of two wheels; and this suggests a possible connection between such a figure and the burning wheel, which was made to represent the descent of the sun in the ceremonies practised at the summer solstice."* The writer here means the flaming wheels already described in these pages, and a quotation about them has been made from his work. Had he been aware of the intimate connection between the wheel and thunder, he would have found an additional evidence for his suggestion by looking at the sceptre as a thunderbolt. By comparing the ends of the sceptre with the Dorjé of the Lamas (see Fig. 3), which is not only a vajra, or thunderbolt, but is at the same time a sceptre, a striking similarity will be recognised. The zigzag form of the Scottish sceptre, being exactly the form in which lightning is represented, certainly supports this idea of its meaning. The weak part of the whole theory is, that only one instance of the disc in the form of a wheel has as yet been discovered. Without assuming any definite conclusion upon it, the point is at least worthy of a place in this collection of material, and further information may perhaps be forthcoming.
+ 
+[Fig. 42.--- Altar in the Maison-Carree, Nismes. Copied by permission from _Le Dieu Gaulois du Soleil_.]()
+
+[Fig. 43. --- Double Disc and Sceptre.]()
+
+[Fig. 44. --- Double Disc and Sceptre.]()
+
+*) _Le Dieu Gaulois du Soleil_, pp. 7, 8.
+
+*) _Ibid._ p. 8.
+
+*) _Handbook of the Roman Wall_, p. 218.
+
+*) Stuart's _Sculptured Stones of Scotland_, vol. 1. pl. 80. See also vol. 2. pl. 15, fig. 28.
+
+*) _The Early Races of Scotland and their Monuments_, by Lieut.-Col. Forbes Leslie, vol. 2. p. 402.
+
+Since the above was written, the English translation of Count Goblet D'Alviella's _Migration of Symbols_ has been published, with an Introduction by Sir George Birdwood, in which the latter gives a double disc with the sceptre from Stuart's _Sculptured Stones of Scotland_.* It is from a stone found at St. Vigeans, near Arbroath, and each disc contains what Sir George considers to be a Swastika. I have minutely inspected the original lithograph in Stuart's book, and wish I could be certain that this is the real meaning of the forms represented, as it would go a long way to prove that these old sculptured discs were intended for wheels, or that they were solar symbols. In this case there is just the possibility that the form has been the result of the peculiar interlacing of bands, originating at first in the use of metal, which is so characteristic of old Celtic ornament. Since looking over Stuart's book, an idea has suggested itself that carries to my mind more weight with it than either of the examples given above. Among the old sculptured symbols, a crescent and sceptre occur very often; now if that crescent represents the moon, we may be almost certain that the circular discs were intended for the sun.
+
+*) Stuart's _Sculptured Stones of Scotland_, vol. 1. pl. 69; and also vol. 2. pl. 15. fig. 27.
+
+Grimm expressly connects the wheel with thunder in Germany. "A wheel, especially a flaming one, is the symbol of _thunder_, of _Donar_; hence the lords of _Donnersberg_, burg-vassals to Cochheim, bear it on their coat-of-arms (Hontheim, 2. 5, tab. 5.), likewise those of _Roll_ (thunder), while those of Hammerstein have three hammers in theirs."*
+
+Miölnir was the name of Thor's hammer; it was a weapon as well as a thunderbolt. The Swastika has been identified with this hammer, but Grimm refers to that symbol only as the "_Hammersmark_."* That it was considered to be a wheel in Teutonic symbolism, he does not say.
+
+The most probable explanation of this relationship between the wheel and thunder may perhaps be found in supposing that the wheel which has been shown to be a symbol of the sun, or the solar motion, at the same time included the whole celestial movement, which revolves over our heads with such unerring constancy. It is this motion that brings day and night; it also brings the seasons, and with the seasons come the fruits of the earth. The life of man and every creature depends upon these. Every good thing, we may assume, appeared to depend upon the wheel-like revolution above. This idea underlies the sunwise circumambulations; the solar movement above produced good, and to imitate that movement here below was supposed to produce a similar result. The imitation of natural operations is now one of the recognised principles in explaining ancient ritual and customs, and the circular movements in imitation of the sun present us with a very good example. The celestial motion sent that which was beneficial to man, and the imitation of that motion, it was believed, would also bring those things that were desired; hence the notion of good luck following sunwise movements of which so many instances have been brought forward. It was the Great Celestial Wheel, or, in a higher conception of the symbolism, the Good Deity that ruled the movement above, and thus conferred every blessing on those below. The celestial wheel symbolised what we now mean by the word "Heaven"; and as we express the idea that all things are according to the Will of Heaven, so all things came from the action of the wheel. The Brahman turning on the wheel rose to the highest heaven, and the Dervish whirling round brought heaven down to earth: these illustrate the connection. From heaven come rain, lightning, and thunder; they are only a part of the great movement above, and being so, they were attributes of the wheel. Jupiter was the ruler above, and among his titles were _Tonans_, _Fulminator_, and _Pluvius_. These were heavenly manifestations, and would naturally be ascribed to the power that ruled in that region. Let the wheel be considered in this light, and it will explain the most of the rites and customs, including the thunder, that have been brought forward in these pages.
+
+*) _Teutonic Mythology_, vol. 4. p. 1348.
+
+*) _Ibid._ vol. 4. p. 1345.
+
+# Chapter 19. --- Summary.
 
 ...
