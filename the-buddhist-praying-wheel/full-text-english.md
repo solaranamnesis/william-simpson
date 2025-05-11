@@ -60,7 +60,7 @@ Pope, _Essay on Man_.
 
 # [Chapter 18. --- The Wheel and Thunder.](#chapter-18-----the-wheel-and-thunder-1)
 
-# [Chapter 19. --- Summary.]()
+# [Chapter 19. --- Summary.](#chapter-19-----summary-1)
 
 ...
 
