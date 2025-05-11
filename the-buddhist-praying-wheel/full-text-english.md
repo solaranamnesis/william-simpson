@@ -52,6 +52,12 @@ Pope, _Essay on Man_.
 
 # [Chapter 14. --- Among the Gauls, the Teutons, and the Celts.](#chapter-14-----among-the-gauls-the-teutons-and-the-celts-1)
 
+# [Chapter 15. --- The Wheel of Fortune.]()
+
+# [Chapter 16. --- The Wheel as an Amulet.]()
+
+# [Chapter 17. --- The God of the Wheel.]()
+
 ...
 
 ---
