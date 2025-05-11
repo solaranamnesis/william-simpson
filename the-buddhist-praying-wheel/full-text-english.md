@@ -58,6 +58,8 @@ Pope, _Essay on Man_.
 
 # [Chapter 17. --- The God of the Wheel.](#chapter-17-----the-god-of-the-wheel-1)
 
+# [Chapter 18. --- The Wheel and Thunder.]()
+
 ...
 
 ---
@@ -1550,5 +1552,59 @@ If the conclusions of M. Gaidoz regarding the circle or disc in connection with 
 Some of these explanations seem to me to have much in their favour, while about others I hesitate and am willing to wait before deciding. Should further evidence be forthcoming, and they be all substantiated, such a conclusion, it may be remarked, will be in perfect harmony with a theory which now finds acceptation among archaeologists, that the pre-Christian cross originated as a symbol, or representation, of the "four quarters"; and this, it has been shown, was intimately connected with the Circle of the Solar Circumambulation.
 
 # Chapter 17. --- The God of the Wheel.
+
+The material which has been gathered together in these pages will have conveyed some idea of the important place that wheels and circular movements have occupied in the ceremonies and customs of nearly the whole of Europe in the past. There were the Midsummer and May-day festivals, at which the whole population of towns and villages attended, and in which monarchs and clergy officiated. To turn "sun-wise" for good luck must have been a matter of daily consideration, and the use of wheels as amulets would familiarise the symbol in the eyes of every one. To these there is now to add a God of the Wheel, or at least a deity that was represented with a wheel as his most prominent symbol. This discovery is due to M. Gaidoz, and it throws a new and important light upon the subject. It explains to a certain extent the frequent use of wheels, as well as of wheel-like ceremonies and customs, among the people of the north and west in Europe; and it shows that these ceremonies presented a religious aspect at one time to the minds of those that performed them.
+
+I have seen notices in books of a Teutonic idol with a wheel, which had once existed and whose name was Seater, that he was the same as Saturn, and he was the deification that gave the name to "Saturday." In a quaint, old-fashioned book, entitled the _Restitution of Decayed Intelligence_, which bears the name of Verstigan as its author, there are figures of the deities whose names are associated with the days of the week, copies of which I made many years ago, and here I give that of the "Idol Seater"* (Fig. 33). I should scarcely have ventured to produce this from such a doubtful authority if its accuracy had not been confirmed by what Grimm says. His words exactly describe this figure. "We are told of an image of this Saturn or Krodo, which represented the idol as a man standing on a great fish, holding a pot of flowers in his right hand, and a wheel erect in his left."*
+
+[Fig. 33. --- Seater, or Saturn.]()
+
+The most of the figures of the Wheel-God have been 
+
+*) I may also add that the figure given in this book for Sunday is the sun, and beneath it is a wheel with eight spokes, from the rim of which radiate rays, that may either indicate light or fire. The rays are more like flames than the conventional rays placed round the sun, from which it may be assumed to represent a fiery wheel.
+
+*) _Teutonic Mythology_, vol. 1. p. 248. Grimm supplies other details respecting this Saturn or Krodo, and it appears that amongst his names was that of "Sitivrat." In relation to this name he says: "Slave mythologists have identified Sitivrat with the Hindu _Satyâvrata_, who in a great deluge is saved by Vishnu in the form of a fish. Krodo stands on a fish; and Vishnu is represented wearing wreaths of flowers about his neck, and holding a Wheel [chakra] in his fourth hand" (_ibid._ p. 249). Grimm naturally hesitates about accepting the wide leap that is implied in this identification. If it could be established that Sitivrat is Satyâvrata, it would prove, almost beyond a doubt, that the wheel symbol in the West had been brought from the original Aryan home --- wherever that may have been --- and we would have the explanation of the striking similarity of customs which have been described in these pages as existing in India and the extreme north-west of Europe. It may be mentioned that the _Matsya_, or Fish Avatar of Vishnu, is mentioned for the first time in the _Satapatha-Brâhmana_, 1. 8. 1. 1. That, roughly speaking, takes it back to about 800 BCE, --- a long time after the date that must be allotted to the separation of the Aryans from their original starting-point. Ideas must exist before they find written expression, and the fish may have been accepted as a symbol long before the _Brâhmana_ came into existence. It is not beyond the limits of what is possible that further evidence of antiquity may yet turn up; but till that occurs this point of identity must remain undetermined.
+
+found on French soil, and there has been some difficulty in correlating the Gaulish deity with the Roman. This is no doubt an important point in working out the various gods of the northern pantheon, but it is not much to our present purpose. It should be almost sufficient for this investigation that the figure bears a wheel as a prominent emblem. The work of M. Gaidoz, already so often referred to --- _Le Dieu Gaulois du Soleil et le Symbolisme de la Roue_ --- has illustrations of these figures, and the author has most kindly granted me permission to make copies of them.
+
+It will be noticed that the fish does not appear along with any of these representations. This may have formed a distinction perhaps between the Teutonic and the Gaulish forms of the Wheel-God, but more examples would require to be examined before this could be determined.
+
+The Department of Allier is very nearly in the middle of France, and that region, it appears, was noted at an early age for its pottery, as it supplied the most of the country with its productions, which were numerous, and included sacred as well as profane articles. Amongst the former of these were gods, and the Wheel-God appears to have been included in the works of these workers in terra-cotta. M. Esmonnot of Moulins formed a collection of fragments of these, which are now in the St. Germain Museum. M. Bertrand of Moulins has also made a collection, and has been able to join some of his fragments together, so as to make complete figures (Figs. 34, 35). The art is of the rudest kind, but it shows an old man with a beard; his left hand rests on the head of a creature with a human face, --- a female with breasts, but apparently with animal extremities. With his left hand he supports a wheel on his shoulder. The number of spokes cannot be made out in either of the two illustrations, but a fragment of a wheel from the Esmonnot collection shows that the wheels had six spokes (Fig. 36).
+
+[Fig. 34. --- The Wheel-God. In the Collection of M. Bertrand of Moulins. Copied by permission from _Le Dieu Gaulois du Soleil_.]()
+
+[Fig. 35. --- The Wheel-God. In the Collection of M. Bertrand of Moulins. Copied by permission from _Le Dieu Gaulois du Soleil_.]()
+
+[Fig. 36. --- Wheel, from the Esmonnot Collection, now in St. Germain Museum. Copied by permission from _Le Dieu Gaulois du Soleil_.]()
+
+At Châtelet, near Saint-Dizier, Haute-Marne, in 1774, there was found a small statue in bronze, about four inches high (Fig. 37). With the exception of socks or boots, the figure is naked; the right hand holds a thunderbolt, and the left has a wheel with six spokes. The head with its hair and beard would suggest that the Jupiter type had been imitated in this, and the same may be said of the terra-cotta figures from Allier. The thunderbolt in the hand of the bronze figure makes it almost certain that this is correct; but it does not follow, it must be remembered, that the Wheel-God corresponded in all its attributes with the Jupiter of the Romans.
+
+M. Gaidoz describes, but gives no illustration of, a statue in bronze, found in 1881, at Landouzy-la-Ville, Aisne. It is about eight or nine inches in height. The right arm is broken at the elbow; the left hand holds a wheel which rests on a pedestal. The figure at first sight might be taken for a Hercules; but on the pedestal is an inscription, IOM:ET:N:AVG., which is amplified I[ovi] O[ptimo] M[aximo] ET N[umini] AVG[usti]. This would seem to imply that the Gauls had to some extent identified their God of the Wheel with the Roman Jupiter.
+
+[Fig. 37. --- Bronze Figure. Found at Châtelet. --- In the Louvre. Copied by permission from _Le Dieu Gaulois du Soleil_.]()
+
+In the museum at Treves there is an altar that was found at Theley, near Tholey, circle of Ottweiler, Arrondissement of Treves. There is a figure represented on each side of the four sides of this altar; three of the faces are occupied by Hygeia, Minerva, and Hercules. On the fourth side is a rude representation of a male figure with a wheel of six spokes in his left hand (Fig. 38). This figure has no beard, and from that peculiarity it bears but little resemblance to Jupiter; but there is what has been supposed to be a bird at the lower corner of the niche, and this is assumed to represent an eagle, and that a Jupiter of the Wheel is intended.
+
+[Fig. 38. --- Sculpture in the Treves Museum. Copied by permission from _Le Dieu Gaulois du Soleil_.]()
+
+[Fig. 39. --- Colossal Statue of Wheel-God. Found at Séguret, Vaucluse, now in the Museum at Avignon. Copied by permission from _Le Dieu Gaulois du Soleil_.]()
+
+That the Wheel-God --- whoever he may have originally been among the Gauls --- had become fully Romanised, we have evidence in a colossal statue of stone found in 1876 at Séguret, Vaucluse, now in the museum at Avignon (Fig. 39). This figure unfortunately wants the head and the left hand, otherwise it is fairly perfect. The costume is purely Roman, and the eagle, although in a fragmentary condition, leaves no doubt as to what bird is meant; and in this there is ample proof that the Gaulish deity had, at least in one of its forms, become identified with Jove. The wheel in the right hand has ten spokes.
+
+Near the same place another monument was found which confirms the above, and is thus described by M. Gaidoz: "Une représentation analogue se rencontre encore dans la même région, à Vaison, c'est-à-dire à sept kilomètres seulement de Séguret. C'est un autel votif. 'On y voit à côté de Junon tenant la patère et accompagnée du paon, son oiseau favori, Jupiter cuirassé et casqué, les jambes et les pieds nus; de la main droite il tient un foudre, et de la gauche, une roue; un aigle est posé à ses pieds.'"*
+
+It would be reasonable to suppose that under Roman influence the Gauls would identify their God of the Wheel, who was also their Thunder God, with Jupiter; and most of these statues serve to prove that such was the case. A figure in bronze, found at Vienne, on the Rhone, in 1866,* about eight or nine inches high, standing on a circular base, is surmounted by a drum, from which project small drums in the form of a circle. These are supposed to represent a thunder-wheel, and the title "Le Dieu Gaulois au Marteau" was given to this figure, because the hammer was the instrument of thunder in the Teutonic mythology. But this figure has the lion's skin worn over his head and shoulders, showing that it is Hercules and not Jupiter (Fig. 40). Of course it is not quite certain that these drums or hammers represent a wheel, although that is the probability, and it may only show that the Gauls at that time were not very particular as to which god of the Roman Pantheon they added their wheel to.
+
+[Fig. 40. --- Le Dieu Gaulois au Marteau.]()
+
+*) _Le Dieu Gaulois du Soleil_, p. 6. This altar is in the collection of M. E. Raspail, at Gigondas, Vaucluse.
+
+These form the principal data on this particular branch of the subject. M. Gaidoz enters more fully into details which are not quite necessary here. His final conclusion may be quoted. He says: "Nous croyons done avoir démontré que le dieu gaulois à la roue est le dieu du soleil."* Here again we have the connection of the wheel with the sun, which has been so often dealt with in these pages, and confirms my original suggestion made now nearly thirty years ago.
+
+*) Figured in the _Gazette archéologique_, 1887, p. 306.
+
+*) _Le Dieu Gaulois du Soleil_, p. 98.
+
+# Chapter 18. --- The Wheel and Thunder.
 
 ...
