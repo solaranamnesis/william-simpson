@@ -62,7 +62,7 @@ Pope, _Essay on Man_.
 
 # [Chapter 19. --- Summary.](#chapter-19-----summary-1)
 
-...
+# [Additional Notes.]()
 
 ---
 
