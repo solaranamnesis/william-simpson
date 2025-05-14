@@ -18,7 +18,7 @@ Pope, _Essay on Man_.
 
 ## London, 1896.
 
-### MacMillan and Co., Ltd.
+### Macmillan and Co., Ltd.
 
 ---
 
