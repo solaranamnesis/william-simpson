@@ -520,7 +520,7 @@ The note referred to by Professor Eggeling at p. 45 is also worthy of a place he
 
 *) _Agni_, the second syllable of this long word, it may be explained, is the Sanskrit term for "fire."
 
-*) _Rakshas_, or Rakshasas_, are evil spirits or demons.
+*) _Rakshas_, or _Rakshasas_, are evil spirits or demons.
 
 *) _Satapatha-Brâhmana_ (Sacred Books of the East, vol. 12. p. 45, note).
 
