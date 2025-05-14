@@ -1424,7 +1424,7 @@ The instances that can be cited of the use of wheels in France are not quite so 
 
 *) Durandus, bishop of Mende.
 
-*) Grimm's _Teutonic Mythology, vol. 2. pp. 620, 621.
+*) Grimm's _Teutonic Mythology_, vol. 2. pp. 620, 621.
 
 Gaidoz quotes from a letter written by M. Luzel, who says: "J'ai pourtant souvenir d'avoir entendu, dans mon enfance, des vieillards dire que dans leur jeunesse on entourait de paille des roues de charrette et qu'on les promenait sur les routes et sur les hauteurs, après y avoir mis le feu."*
 
