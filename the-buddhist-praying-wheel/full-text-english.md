@@ -1476,7 +1476,7 @@ The throwing of burning discs whirling in the air was another feature at the Len
 
 At Wangen, Molsheim, discs are thrown from a hill near the village, the top of which is called "_Scheibenplatz_, place aux disques."* A similar custom exists in Swabia.*
 
-*) Le Dieu Gaulois du Soleil_, pp. 23, 24.
+*) _Le Dieu Gaulois du Soleil_, pp. 23, 24.
 
 *) _Ibid._ p. 34.
 
