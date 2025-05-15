@@ -1484,7 +1484,7 @@ Among these is the use of the wheel as an amulet. This will help to show, along 
 
 [Fig. 26. --- Bronze Wheel. Found at Hounslow, now in British Museum. Same size as original.]()
 
-[Fig. 27. --- Wheel with Charms attached. Found in Swiss Lake-Dwellings.]()
+[Fig. 27. --- Wheel with Charms attached. Found in Swiss Lake-Dwellings.*]()
 
 *) _Archæologia_, vol. 39. p. 509. This wheel is now in the British Museum, where I made a sketch of it, but the authorities there have no information as to the circumstances under which it was discovered. It is 1 3/8 of an inch in diameter. The rim is close upon a circle in section.
 
