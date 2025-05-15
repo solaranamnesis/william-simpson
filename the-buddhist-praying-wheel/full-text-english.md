@@ -817,18 +817,7 @@ The following from the same authority is worth giving, for the details it suppli
 
 It is very probable that the wearing of the _Ihram_, or pilgrim's dress, is a survival of the above. There is a tract of country round Mekkah to which the name El-Haram is given, and each pilgrim, when he reaches the boundary of this hallowed ground, bathes, shaves his head, cuts his nails, etc., and also puts on the dress; it "is nothing but two new cotton cloths, each six feet long by three and a half broad, white, with narrow red stripes and fringes, in fact, the costume called _El-Eddeh_ in the baths at Cairo."* This is worn while the pilgrim is within the Haram boundary; and he afterwards carefully preserves it, as his desire is that it may become his shroud.*
 
-Burton gives very minute details of the Tawaf as 
-it is now performed. Before beginning, he writes: 
-"I repeated, after my Mutawif, or cicerone, 'In the 
-Name of Allah, and Allah is omnipotent! I purpose to 
-circuit seven Circuits unto Almighty Allah, glorified 
-and exalted!'"* Of these seven he says: "...We 
-performed the three first at the pace called Harwalah, 
-very similar to the French _pas gymnastique_, or 
-Tarammul, that is to say, 'moving the shoulders as if 
-walking in sand.' The four latter are performed in 
-Taammul, slowly and leisurely; the reverse of the 
-Sai, or running. These seven Ashwat, or courses, are 
+Burton gives very minute details of the Tawaf as it is now performed. Before beginning, he writes: "I repeated, after my Mutawif, or cicerone, 'In the Name of Allah, and Allah is omnipotent! I purpose to circuit seven Circuits unto Almighty Allah, glorified and exalted!'"* Of these seven he says: "...We performed the three first at the pace called Harwalah, very similar to the French _pas gymnastique_, or Tarammul, that is to say, 'moving the shoulders as if walking in sand.' The four latter are performed in Taammul, slowly and leisurely; the reverse of the Sai, or running. These seven Ashwat, or courses, are called collectively one Usbu. The Moslem origin of this custom is too well known to require mention. After each Taufah, or circuit, we, being unable to kiss the Black Stone, fronted towards it, raised our hands to our ears, exclaimed, 'In the Name of Allah, and Allah is omnipotent!' kissed our fingers, and resumed the ceremony of circumambulation as before."*
 
 *) _Lectures on the Religion of the Semites_, p. 432.
 
@@ -837,8 +826,6 @@ Sai, or running. These seven Ashwat, or courses, are
 *) Curzon's _Levant_ mentions that some pilgrims bring shrouds with them from Jerusalem. I believe this practice is confined to the Greek Church.
 
 *) Burton's _Meccah_, chap. 26.
-
-called collectively one Usbu. The Moslem origin of this custom is too well known to require mention. After each Taufah, or circuit, we, being unable to kiss the Black Stone, fronted towards it, raised our hands to our ears, exclaimed, 'In the Name of Allah, and Allah is omnipotent!' kissed our fingers, and resumed the ceremony of circumambulation as before."*
 
 Burton does not say in direct words in what direction he went round, but from his references to each corner of the Ka'abah as he passed them, we may be certain that he made the circuits with his left hand to the centre. There are other authorities that confirm this. Burckhardt says: The devotee then begins the _towaf_, or walk round the Kaaba, keeping that building on his left hand."*
 
