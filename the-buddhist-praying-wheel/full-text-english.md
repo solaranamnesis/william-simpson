@@ -951,14 +951,7 @@ Philo says: "Some persons, however, have fancied that it is the sun which is ind
 
 He repeats: "...We must suppose that the sword, consisting of flame, and always turning in every direction, intimates their motion," that is of the stars, "and the everlasting motion of the entire heaven."* And again, "...The flaming sword is a symbol of the sun; for as he is a collection of an immense body of flame, he is the swiftest of all existing things to such a degree that in one day he revolves round the whole world."*
 
-David's dancing before the ark* would not, from 
-the Scriptural account of it, appear to have been a 
-circular movement; but the Abyssinian priests of the 
-present day go round their ark, or altar, at certain parts 
-of the service when consecrating, and this, they affirm, 
-is done in imitation of David's dancing.* The chances 
-are that David's dancing and the Abyssinian priests' 
-performance are both continuations of the primitive 
+David's dancing before the ark* would not, from the Scriptural account of it, appear to have been a circular movement; but the Abyssinian priests of the present day go round their ark, or altar, at certain parts of the service when consecrating, and this, they affirm, is done in imitation of David's dancing.* The chances are that David's dancing and the Abyssinian priests' performance are both continuations of the primitive Semitic Tawaf previously described, in which the person doing it went round naked. The priests in Abyssinia do not conform to that part of the rite; but David was to a certain extent in a state of nudity, which goes far to establish the supposition. Professor Robertson Smith gives an explanation of this nakedness, --- which has been already noticed, --- but it does not harmonise with David's case. It is not at all probable that a king would consider the safety of his clothes in such a ceremonial, and I shall have another instance of a similar kind to produce later on in these pages.
 
 *) _Questions and Solutions_, 57.
 
@@ -969,8 +962,6 @@ performance are both continuations of the primitive
 *) 2 Sam. 6. 14.
 
 *) See Bent's _Sacred City of the Ethiopians_, p. 56. I was in Abyssinia in 1868, with the expedition that went then up to Magdala, and one morning I had a slight glimpse into the Holy of Holies of a church when the act of consecration was going on. The place where the ark or altar, called by the Abyssinians the _Taboot_, stands is a very dark apartment, and the congregation is not supposed to see what takes place. This prevented me from going inside, so I did not see the circulation round the altar; neither did I learn in what direction it was made.
-
-Semitic Tawaf previously described, in which the person doing it went round naked. The priests in Abyssinia do not conform to that part of the rite; but David was to a certain extent in a state of nudity, which goes far to establish the supposition. Professor Robertson Smith gives an explanation of this nakedness, --- which has been already noticed, --- but it does not harmonise with David's case. It is not at all probable that a king would consider the safety of his clothes in such a ceremonial, and I shall have another instance of a similar kind to produce later on in these pages.
 
 # Chapter 12. --- The Greek System.
 
