@@ -1498,7 +1498,7 @@ The use of wheels as ornaments can be traced in Greece, and they go back to a ve
 
 Under the present heading it may be as well to include some other forms of the wheel which M. Gaidoz deals with. I shall only touch upon these, as I do not feel myself competent to give a judgment upon them.
 
-[Fig. 28.--- Golden Wheel, Mycenae. Size of original.]()
+[Fig. 28.--- Golden Wheel, Mycenae. Size of original.*]()
 
 [Fig. 29. --- Bronze Wheel, Mycenae.*]()
 
