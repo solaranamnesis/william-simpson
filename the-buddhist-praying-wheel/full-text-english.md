@@ -975,7 +975,7 @@ Although there need be no doubt of this tendency to drop old customs, still it m
 
 Still we have traces of the wheel symbol as far back as the time of Homer. In describing the visit of Thetis to the abode of Hephaestus about the armour for Achilles, it is said she found the lame god in a home "incorruptible, starry, remarkable amongst the immortals." Pope thus translates the account of the work he was engaged upon:---
 
-That day no common task his labour claim'd:  
+"That day no common task his labour claim'd:  
 Full twenty tripods for his hall he framed,  
 That placed on living wheels, of massy gold,  
 [Wondrous to tell] instinct with spirit roll'd  
