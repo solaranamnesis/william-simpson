@@ -9,3 +9,7 @@ German - PDF
 ```
 convert "$file" -colorspace RGB -negate -fuzz 10% -transparent black "output/$file"
 ```
+
+```
+convert "$file" -colorspace RGB -negate -fill "rgb(225, 189, 47)" -fuzz 50% -opaque white -transparent black "output/$file"
+```
