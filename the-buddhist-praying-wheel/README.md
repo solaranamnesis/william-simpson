@@ -13,3 +13,17 @@ convert "$file" -colorspace RGB -negate -fuzz 10% -transparent black "output/$fi
 ```
 convert "$file" -colorspace RGB -negate -fill "rgb(225, 189, 47)" -fuzz 50% -opaque white -transparent black "output/$file"
 ```
+
+Images:
+
+```
+Wheel2:
+Chris Hunkeler, Turning Wheel of Dharma, Imaged Edited by Solar Anamnesis, CC BY-SA 2.0
+
+Nevit Dilmen, Cerceve nevit 112, Edited by Solar Anamnesis, CC BY-SA 3.0
+
+Wheel3:
+Amitabha Gupta, Prayer Wheels Tamang Gompa Premises, Kalimpong 10, Imaged Edited by Solar Anamnesis, CC BY 4.0
+
+Meul (Meul), Lotus, Imaged Edited by Solar Anamnesis, CC BY-SA 3.0
+```
